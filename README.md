@@ -1,0 +1,1 @@
+# gadget-mahjong-exclusive.github.io
